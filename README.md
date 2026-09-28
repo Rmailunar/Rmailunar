@@ -1,4 +1,4 @@
-## Hi, I'am Retselisitsoe Maime👋
+## Hi, I'm Retselisitsoe Maime👋
 
 BSc (Hons) Computing student at Botho University, Specializing in Networks,
 OSH Consultant (SAIOSH) With 5+ years of Construction industry experience
